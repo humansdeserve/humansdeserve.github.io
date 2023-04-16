@@ -1,2 +1,2 @@
-# [humansdeserve.healthcare](https://humansdeserve.healthcare)
-All humans deserve healthcare
+# [humansdeserve.org](https://humansdeserve.org/)
+Humans Deserve; No ifs, ands or buts
